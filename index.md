@@ -1,6 +1,6 @@
 # Findingyingying.github.io 稳定链
 
-1. 带悬赏的海报: https://findingyingying.github.io/Library/40000.pdf
+1. 带悬赏的海报: https://findingyingying.github.io/Library/reward.pdf
 2. 寻人启事: https://findingyingying.github.io/Library/MissingPerson.pdf
 3. 父亲公开信图片:  https://findingyingying.github.io/Library/father_letter.jpg
 4. FBI海报复刻: https://findingyingying.github.io/Library/yingying-zhang.pdf
